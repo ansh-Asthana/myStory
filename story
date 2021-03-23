@@ -1,0 +1,1 @@
+Ansh, Arush, Ram and Shyam are all playing together then they had o go to school so they went back home to get their stuff and went to school. Ram forgot to do his homework so he asked shyam if he could copy his. Then the teacher go too angry that she killed Ram.
